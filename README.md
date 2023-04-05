@@ -1,2 +1,0 @@
-# FB-HACK
-Facebook Hacked 😈💖✨
